@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @leazacherl
+- 🌼 Hi, I’m Lea!
 
 
 <!---
